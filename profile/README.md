@@ -2,7 +2,7 @@
 
 In today’s fast-paced world, finding entertaining yet safe online games can be challenging, especially in environments like schools or workplaces where gaming websites are often blocked. That’s where **Unblocked Games 6x** comes in – a platform designed to provide a seamless gaming experience without restrictions. 
 
-## <a href="https://classroom-6x-unblocked.github.io/">👉 Click To Play Unblocked Games 6x 👈</a>
+## <a href="https://izigames.net/">👉 Click To Play Unblocked Games 6x 👈</a>
 
 ![Unblocked Games 6x](https://github.com/user-attachments/assets/d2c0f090-5152-4650-b01e-07d5b9fb9fe4)
 
